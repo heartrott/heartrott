@@ -14,7 +14,7 @@
 
 ###
 
-<p data-importer="text" align="left">⠀　　⠀　　sharkilz　𓏼　casino<br>⠀　　⠀　　⠀　❛　　it　they　︵︵<br><br>　　　more to be added when i figure out for ts works</p>
+<p data-importer="text" align="left">⠀　　⠀　　sharkilz　𓏼　casino<br>⠀　　⠀　　⠀　❛　　it　they　︵︵<br><br>　　　more to be added when i figure out how ts works</p>
 
 
 ###
