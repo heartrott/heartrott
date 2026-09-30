@@ -28,7 +28,7 @@
 
   <summary> </summary><br>
   　　　　　　oomfs !!<br>
-   <a href="https://github.com/vintagecasino">@vintagecasino</a>　.　<a href="https://github.com/freechurchbread">@freechurchbread</a>　.　<a href="https://github.com/77crescentmoon">@77crescentmoon</a>　.　<a href="https://github.com/buildermonyaoi">@buildermonyaoi</a>　.　<a href="https://github.com/h6xoi">@h6xoi</a>　.　<a href="https://github.com/rufflecuffs">@rufflecuffs</a>　.　<a href="https://github.com/pr0bhal14">@pr0bhal14</a>　.　<a href="https://github.com/VIVIDLYAMEMORY">@VIVIDLYAMEMORY</a>　.　<a href="https://github.com/kumokura">@kumokura</a><br>
+   <a href="https://github.com/vintagecasino">@vintagecasino</a>　.　<a href="https://github.com/freechurchbread">@freechurchbread</a>　.　<a href="https://github.com/77crescentmoon">@77crescentmoon</a>　.　<a href="https://github.com/buildermonyaoi">@buildermonyaoi</a>　.　<a href="https://github.com/h6xoi">@h6xoi</a>　.　<a href="https://github.com/rufflecuffs">@rufflecuffs</a>　.　<a href="https://github.com/pr0bhal14">@pr0bhal14</a>　.　<a href="https://github.com/VIVIDLYAMEMORY">@VIVIDLYAMEMORY</a>　.　<a href="https://github.com/kumokura">@kumokura</a>　.　<a href="https://github.com/sageonjupiter">@sageonjupiter</a><br>
 
 ###
 
