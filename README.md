@@ -14,8 +14,14 @@
 
 ###
 
-<p data-importer="text" align="left">⠀　　⠀　　sharkilz　𓏼　casino<br>⠀　　⠀　　⠀　❛　　it　they　︵︵<br><br>　　　more to be added when i figure out how ts works</p>
+<p data-importer="text" align="left">⠀　　⠀　　sharkilz　𓏼　casino<br>⠀　　⠀　　⠀　❛　　it　they　︵︵<br></p>
 
+<details>
+
+  <summary> </summary><br>
+  　　　　　　oomfs !!<br>
+   <a href="https://github.com/vintagecasino">@vintagecasino</a>　.　<a href="https://github.com/freechurchbread">@freechurchbread</a>　.　<a href="https://github.com/77crescentmoon">@77crescentmoon</a>　.　<a href="https://github.com/buildermonyaoi">@buildermonyaoi</a>　.　<a href="https://github.com/h6xoi">@h6xoi</a>　.　<a href="https://github.com/rufflecuffs">@rufflecuffs</a>　.　<a href="https://github.com/pr0bhal14">@pr0bhal14</a>　.　<a href="https://github.com/VIVIDLYAMEMORY">@VIVIDLYAMEMORY</a>　.　<a href="https://github.com/kumokura">@kumokura</a>
+</details>
 
 ###
 
