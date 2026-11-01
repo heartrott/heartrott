@@ -16,7 +16,8 @@
 
 <br>
 <p data-importer="text" align="left">⠀　　⠀　　sharkilz　𓏼　casino<br>
-  ⠀　　⠀　　⠀　❛　　it　they　︵︵<br></p>
+  ⠀　　⠀　　⠀　❛　　it　they　︵︵<br>
+  ⠀　　⠀　  17　⠀✚　　-15 dni<br></p>
 
 <div data-importer="image" align="left">
   <img data-importer="image" height="45" src="https://i.postimg.cc/k485t33Q/ezgif-1d7b62d66d7f4c1a.gif"  />
